@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Tomík
+- 👀 I’m interested in video games
+- 🌱 I’m currently learning boring staff
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: you dont
+- 😄 Pronouns: i dont have one, im normal
+- ⚡ Fun fact: i like foxes
